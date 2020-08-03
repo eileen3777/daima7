@@ -1,0 +1,2 @@
+#teksta go nqma 
+izchezna
